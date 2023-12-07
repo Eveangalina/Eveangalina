@@ -1,4 +1,4 @@
-- :tulip:Welcome, my name is @Eveangalina :sparkles:
+- Welcome, my name is @Eveangalina
 - Operations and Cybersecurity
 - Student - Code Fellows :book:
 - Veteran of the United States Marine Corps
