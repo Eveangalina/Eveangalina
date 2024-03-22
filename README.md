@@ -1,5 +1,5 @@
 Welcome, my name is @Eveangalina 🤍 <br/>
-💻Operations & Cybersecurity :book: Student - Code Fellows <br/>
+💻Operations & Cybersecurity :book:  <br/>
 United States Marine Corps Veteran <br/>
 :mailbox: eveangalinascampos@gmail.com :computer: [linkedin.com/in/eveangalina-s-campos](https://www.linkedin.com/in/eveangalina-s-campos-b42346176)
 
