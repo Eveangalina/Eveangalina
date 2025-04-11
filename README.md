@@ -1,5 +1,5 @@
 Welcome, my name is @Eveangalina 🤍 <br/>
-💻Building a Career in Cybersecurity Engineering :book:  <br/>
+💻Aspiring Cybersecurity Engineer :book:  <br/>
 United States Marine Corps Veteran <br/>
 :mailbox: eveangalinascampos@gmail.com :computer: [linkedin.com/in/eveangalina-s-campos](https://www.linkedin.com/in/eveangalina-s-campos-b42346176)
 
